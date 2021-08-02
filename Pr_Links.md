@@ -32,7 +32,7 @@ _Made by [OBAMA Fukai](https://github.com/ParacetamoL217)_
 
 [Free Candy Van](https://discord.gg/yXEKRRrUh2) = https://discord.gg/yXEKRRrUh2
 
-> **Events and Special **
+> **Events and Special**
 
 [Contact](https://discord.gg/zXGJPeXMAm) = https://discord.gg/aVAj3Xzx5M
 
